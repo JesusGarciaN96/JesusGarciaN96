@@ -1,1 +1,1 @@
-![Alt Text](https://gph.is/2AQAF5e)
+![Figaro](https://i.giphy.com/media/wsUuw16j6oyxLLRnnK/giphy.webp)
